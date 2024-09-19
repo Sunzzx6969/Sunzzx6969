@@ -4,7 +4,7 @@
 - 📫 How to reach me
   IG : sunzzx.aja08
   TikTok : Fut`Sunzzx
-- 😄 Pronouns: Male/His
+- 😄 Pronouns: Male/Him/He
 - ⚡ Fun fact:
   Playing Football in Real life and Playing Football in the game (FIFA)
 
